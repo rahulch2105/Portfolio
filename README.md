@@ -5,6 +5,6 @@
 
 🔗 **[Visit My Online Portfolio Website](https://rahul-ch-4jwg6rc.gamma.site)**  
 
-📫 Email: rahulch794@gmail.com  
+📫 Email: rahulcch794@gmail.com  
 
 🌐 LinkedIn: (https://www.linkedin.com/in/rahul-ch-a61a5b2b4)
